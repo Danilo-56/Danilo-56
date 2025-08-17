@@ -1,4 +1,4 @@
-##![Bandeira](https://imgur.com/gallery/banner-ingur-github-xqJ6vWl#hxcMhBE) 
+(https://imgur.com/gallery/banner-ingur-github-xqJ6vWl#hxcMhBE)
 
 <!--
 **Danilo-56/Danilo-56** é um repositório ✨ _special_ ✨ porque seu `README.md` (este arquivo) aparece no seu perfil do GitHub.
